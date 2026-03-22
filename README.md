@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on : Focusly 2.0 (a productivity app) and growing my YouTube channel "UnfilteredX"<br><br>👯 I’m looking to collaborate on : Unique tech ideas, startup-minded people, and content creators who think differently<br><br>🤝 I’m looking for help with : Turning ideas into real products, monetization strategies, and scaling without resources<br>🌱 I’m currently learning : Python, AI systems, and how to actually execute ideas instead of just thinking about them<br>💬 Ask me about : Mindset, emotional intelligence, content strategy, and starting from zero<br>⚡ Fun fact : I don’t want a normal life — I’m trying to build something that actually matters
+🔭 I’m currently working on :  Focusly 2.0 (a productivity app) and growing my YouTube channel "UnfilteredX"<br><br>👯 I’m looking to collaborate on : Unique tech ideas, startup-minded people, and content creators who think differently<br><br>🤝 I’m looking for help with : Turning ideas into real products, monetization strategies, and scaling without resources<br>🌱 I’m currently learning : Python, AI systems, and how to actually execute ideas instead of just thinking about them<br>💬 Ask me about : Mindset, emotional intelligence, content strategy, and starting from zero<br>⚡ Fun fact : I don’t want a normal life — I’m trying to build something that actually matters
 
 
 ## 🌐 Socials:
